@@ -3,7 +3,7 @@
 Buffalo sauce and hot sauce are not the same thing. Hot sauce is a spicy blend of cayenne pepper, vinegar, and salt. Buffalo sauce, meanwhile, is hot sauce that's been enhanced with butter and other ingredients. Buffalo sauce is much richer and smoother than regular hot sauce. It's used as a dipping sauce or a condiment. Of course, Buffalo sauce is most commonly associated with chicken wings.
 
 ## Ingredients
-* ⅔ cup hot pepper sauce (such as Frank's RedHot)
+* 2 cups hot pepper sauce (such as Frank's RedHot)
 * ½ cup cold unsalted butter
 * 1 ½ tablespoons white vinegar
 * ¼ teaspoon Worcestershire sauce
